@@ -1,2 +1,2 @@
-# FOR VIETNAMESE CHANNEL
-Some of the channel can be dead, sorry for that!
+# LIST NAY DA OUTDATE, MOI CAC BAC DUNG LIST
+https://github.com/vuminhthanh12/vuminhthanh12
